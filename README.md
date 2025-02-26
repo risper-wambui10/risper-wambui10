@@ -1,0 +1,1 @@
+I am a student at lyf I am passionate to do computer programming. and improve my coding skills. my current goal is to understand more about programming concept.I’m currently learning python and JavaScript. currently I'm not doing any project.you can reach me though email risperwambui163@gmail.com. official number 0700288521
